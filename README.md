@@ -1,0 +1,1 @@
+https://lovable.dev/projects/5602093cb51dde997d80bdf4a32385a05245c9d6
